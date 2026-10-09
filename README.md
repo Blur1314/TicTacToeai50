@@ -9,7 +9,7 @@
 
 👤 **Zayed Sheikh**
 
-* Github: [@zayed-sheikh-trizform](https://github.com/zayed-sheikh-trizform)
+* Linked-in: [@zayed-sheikh-trizform](https://github.com/zayed-sheikh-trizform)
 
 ## Show your support
 
